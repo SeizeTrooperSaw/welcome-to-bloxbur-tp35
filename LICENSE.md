@@ -1,4 +1,4 @@
-#  
+#  secure survive the apocalypse Scripts offers the most advanced survive the apocalypse Script, with auto-farm and auto-collect. Perfect for dominating
 
 
 
